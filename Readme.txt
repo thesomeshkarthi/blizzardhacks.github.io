@@ -1,3 +1,6 @@
+WEBSITE CREATED FROM TEMPLATE AND MODIFIED BY @THESOMESHKARTHI
+
+
 Thanks for downloading this template!
 
 Template Name: TheEvent
